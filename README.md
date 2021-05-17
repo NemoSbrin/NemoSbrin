@@ -15,16 +15,16 @@
 - **📫 How to reach me:** [email :e-mail:](mailto:palacios.coppiano.kevin@hotmail.com?subject=GitHub%20-%20ReplaceWithTopic2bDiscussed)
 
 ## :watermelon: - Russian
-_Cooming soon..._
+_Coming soon..._
 
 ## :watermelon: - Japanese
-_Cooming soon..._
+_Coming soon..._
 
 ## :watermelon: - Latin 
-_Cooming soon..._
+_Coming soon..._
 
 ## :watermelon: - Esperanto 
-_Cooming soon..._
+_Coming soon..._
 
 <!---
 NemoSbrin/NemoSbrin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
